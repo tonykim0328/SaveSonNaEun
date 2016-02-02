@@ -1,3 +1,6 @@
+![alt tag](https://cloud.githubusercontent.com/assets/9668580/12740197/e216154e-c93e-11e5-88b0-3e48be974401.png)
+
+
 Name:
 Ik Tae Kim
 
